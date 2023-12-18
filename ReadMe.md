@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖥️ Back-end Developer<br>🎛️ Beatboxer<br>🧬 Editor
+• 🖥️ Back-end Developer<br>• 🎛️ Beatboxer<br>• 🧬 Editor
 
 
 ## 🌐 Socials:
